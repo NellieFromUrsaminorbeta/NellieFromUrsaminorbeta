@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Elena!
+- 👀 I’m interested in hard rock and metal music, outdoor sports, gardening, my cats and everything related to sociology, psychology and IT stuff
+- 🌱 I’m currently learning how to contribute on GitHub if I'm not a dev...
+- ...and I will add something more as soon as I figure out how to do :D
